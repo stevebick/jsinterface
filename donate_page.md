@@ -1,0 +1,1 @@
+You can help project or say thanks to project creator through PayPal:
